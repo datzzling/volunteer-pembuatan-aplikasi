@@ -7,3 +7,4 @@ Silakan gunakan format berikut:<br>
 
 Berikut adalah daftar Volunteer yang diterima:
 * Oon Arfiandwi, [oo.or.id](https://oo.or.id).
+* Saira Nashwa Ramadhani, [Linkedin](https://www.linkedin.com/in/saira-ramadhani/)
